@@ -7,6 +7,5 @@ I'm currently a second year bachelor student at EPFL 🇨🇭
 
   🪧 shahina.chopra@epfl.ch
   
-  📱 shahi.pra974
   
 
