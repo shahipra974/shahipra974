@@ -1,6 +1,6 @@
 ### Hi there, I'm Shahina 👋
 
-I'm currently a second year bachelor student at EPFL 🇨🇭
+I'm currently a second year master student in Chemistry at EPFL 🇨🇭
 
 
 📫 How to reach me : 
